@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @JeremieV
 - 👀 ...
+- I have a portfolio at jeremievaney.com
 - 📫 Reach me at jeremievaney[at]gmail[dot]com
 
 <!---
