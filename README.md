@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @JeremieV
 - 💻 www.jeremievaney.com
-- 📫 Reach me at jeremievaney[at]gmail[dot]com
+- 👔 www.linkedin.com/in/jeremievaney
+- 📫 Reach me at jeremievaney@gmail.com
